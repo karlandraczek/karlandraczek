@@ -5,7 +5,7 @@ In my current post doc project at sDiv, I am investigating biodiversity's role i
 
 How to reach me: 
 karl.andraczek@idiv.de, karl.andraczek@web.de
-See my personal website: [My website](karlandraczek.com)
+See my personal website: [My website](https://karlandraczek.com)
 
 
 <!---
